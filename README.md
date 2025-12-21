@@ -1,19 +1,11 @@
-hi it me 
+<p align="center">
+    <img width="500" src="https://64.media.tumblr.com/527e6054a0cf7bf11c881cf2d08689d1/1c461718f2e37902-3c/s540x810/554608c875be4ddce3ab6faed8a7b89e0ac0fa80.gif" alt="hi">
+</p>
 
+<p align="center">
+  " you've  got  me  feeling  like  a  walking  lovesong " — 11:11, waterparks </p>
 
-Squid Game has ruined my life. I can't look at a PS4 controller without bursting out in laugther because it remind me of the guards. The electrical room from among us already ruined my fucking life because squid game. Shape toys? THE FUCKING GUARD SIGNS AGAIN! Pinapple guy is player #001? Wtf. The neutral emoji I can't even look at it it turns into player #456 in my sleep. Nikocado Avocado has a square sign on his chest I SERIOUSLY THOUGHT HE WAS A SQUARE GUARD WTF!! I can't even eat doritos because of squid game. I can't even play fucking splatoon because of that horrible squid game. The moon emoji just fucking turns into the doll from the first game and I can't make it stop. I wanna fucking kill myself my life is fucking ruined
+  
 
-<!--
-**shiinonome/shiinonome** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+read my [strawpage](https://phvidei.straw.page/)
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
